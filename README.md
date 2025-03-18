@@ -1,0 +1,2 @@
+# holyquran
+q.co.sc
